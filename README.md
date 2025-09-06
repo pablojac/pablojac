@@ -1,5 +1,3 @@
-[ReadMe.md](https://github.com/user-attachments/files/22183100/ReadMe.md)
-
 
 ![Brown Purple Simple Computer Maintenance Presentation (2)_pages-to-jpg-0001](https://github.com/user-attachments/assets/010779f9-4509-4b10-a630-ee5180cde2c9)
 
