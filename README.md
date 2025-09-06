@@ -1,4 +1,7 @@
 [ReadMe.md](https://github.com/user-attachments/files/22183100/ReadMe.md)
+
+[Brown Purple Simple Computer Maintenance Presentation (2).pdf](https://github.com/user-attachments/files/22183248/Brown.Purple.Simple.Computer.Maintenance.Presentation.2.pdf)
+
 # 💫 About Me:
 Estudiante Diplomatura Programador Backend Universidad Nacional Tres de Febrero
 
